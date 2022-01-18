@@ -1,3 +1,3 @@
 # LegendaryLBI
 
-The most **legendary** and **epic** **LBI!**
+The most **legendary** and **epic** **LBI,** because *wrappers* are *gay.*
