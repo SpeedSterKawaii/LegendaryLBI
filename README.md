@@ -13,4 +13,4 @@ Speed Softwares - Maintenance and Support of Legendary LBI.
 
 **Thank you, team, for making Legendary LBI possible.**
 
-(*thanks roblox for making such a fun platform game :)*)
+(*Thanks roblox for making such a fun platform game*)
