@@ -11,7 +11,7 @@ Acrillis - Componenets and Elements for Legendary LBI.
 
 Speed Softwares - Maintenance and Support of Legendary LBI.
 
-(_63% custom, 27% sources, 10% websites_)
+Percent (eta): (_63% custom, 27% sources, 10% websites_.)
 
 **Thank you, team, for making Legendary LBI possible.**
 
